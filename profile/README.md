@@ -1,4 +1,4 @@
-![Group 1](https://user-images.githubusercontent.com/86986628/186598811-dc6dd236-c271-4f09-8f8f-fcd5c8a92ae9.jpg)
+![vina_doc](https://user-images.githubusercontent.com/86986628/215373946-04926343-7083-4a02-9d44-36dbd1e31683.jpg)
 
 ## *We are the Top 1% ranked web Dev team!*
 
